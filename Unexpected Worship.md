@@ -88,6 +88,7 @@ __________________________________________________
 > narrated chat with the cops
 > Admittance, sleep
 __________________________________________________
+------------------------------
 
 "Good morning, sleepy-head!" came a sing-song voice.  "I'm sorry I'm running a little late, but I guess it turns out okay because the hospital doesn't allow guests at all until I'm supposed to be at work?"  Janie was a non-stop word fountain as she ottered her way into his hospital room and started digging through a reusable grocery bag she'd set down on the chair next to Marty's hospital bed.  "I hope I got everything - the hotel front desk lady looked at me weird last night, but it'll take more than her to scare me away!  Anyway the door key worked just fine, and I got..." she paused, pulling something up on her phone.  "...clean shirt, underwear, socks, I didn't see any shoes with you last night so I grabbed you some of those just in case.  You can keep the bag, I have others," she said.
 
@@ -121,18 +122,16 @@ He couldn't breathe for a solid three seconds.  His heart literally skipped a be
 
 Marty grabbed for his phone, got a handfull of wires and bedsheets, remembered it was on his other side, fumbled it, and finally opened the selfie camera.  He held the sheet up in front of him, and snapped a picture.  Setting down Janie's paper, he zoomed in on her automatic writing.  It was _very_ rough, but the marks did gradually start resolving into words:
 
-_________________________________________
-
+------------------------------
 _Pet,_
 
 _I told you I'd return for you.  The place and time are yours to choose; the process is mine.  
 Return to the refuse behind the bar.  Choose one round, clear, unbroken glass item as a focus.
 Take it with you to a dark place where no one else can see or disturb you.  Wash your focus, and
 yourself, perfectly clean.  When you are prepared, disrobe, and extinguish or cover all lights.  
-Kneel before the focus.  Meditate on the events of last night.  When I can see you are calm, I 
-will come to you.  The meditation will require no less time than we last spent together._
-
-_________________________________________
+Kneel before the focus.  Meditate on the events of last night.  When I can see you are calm, I_ 
+_will come to you.  The meditation will require no less time than we last spent together._
+------------------------------
 
 Marty stared.  His thoughts were travelling a million miles an hour, but also would not form.  The machine behind him made concerned beeps again.  He closed his eyes, and took a few deep breaths.  _There is no way this is real.  There is_ ***no way*** _this is real._  
 
@@ -161,6 +160,6 @@ He hit send, and waited for her to reply.  He didn't have to wait long.
 **whatever it is**
 **That's all I got.  I dunno, maybe you have an ancestor trying to throw you a surprise party?  lol**
 
-__________________________________________________
+------------------------------
 
 
