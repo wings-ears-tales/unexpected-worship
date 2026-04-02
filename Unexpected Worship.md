@@ -83,10 +83,10 @@ Marty covered his face and groaned.  "So you know I'm high as balls, right," he 
 Tongs nodded.  "Oh yeah, and that's only gonna get worse, baby, I'm sorry.  Terry, no more Narcan, though.  Thank you for bringing that."
 
 __________________________________________________
-> Janie otter (spoon) volunteers to bring Marty fresh clothes
-> Whirlwind of paramedics
-> narrated chat with the cops
-> Admittance, sleep
+* Janie otter (spoon) volunteers to bring Marty fresh clothes
+* Whirlwind of paramedics (incl. "you should have died, that should've been an overdose")
+* narrated chat with the cops
+* Admittance, sleep
 __________________________________________________
 ------------------------------
 
@@ -122,16 +122,14 @@ He couldn't breathe for a solid three seconds.  His heart literally skipped a be
 
 Marty grabbed for his phone, got a handfull of wires and bedsheets, remembered it was on his other side, fumbled it, and finally opened the selfie camera.  He held the sheet up in front of him, and snapped a picture.  Setting down Janie's paper, he zoomed in on her automatic writing.  It was _very_ rough, but the marks did gradually start resolving into words:
 
-------------------------------
-_Pet,_
-
-_I told you I'd return for you.  The place and time are yours to choose; the process is mine.  
-Return to the refuse behind the bar.  Choose one round, clear, unbroken glass item as a focus.
-Take it with you to a dark place where no one else can see or disturb you.  Wash your focus, and
-yourself, perfectly clean.  When you are prepared, disrobe, and extinguish or cover all lights.  
-Kneel before the focus.  Meditate on the events of last night.  When I can see you are calm, I_ 
-_will come to you.  The meditation will require no less time than we last spent together._
-------------------------------
+> _Pet,_
+>
+> _I told you I'd return for you.  The place and time are yours to choose; the process is mine._
+> _Return to the refuse behind the bar.  Choose one round, clear, unbroken glass item as a focus._
+> _Take it with you to a dark place where no one else can see or disturb you.  Wash your focus, and_
+> _yourself, perfectly clean.  When you are prepared, disrobe, and extinguish or cover all lights._
+> _Kneel before the focus.  Meditate on the events of last night.  When I can see you are calm, I_
+> _will come to you.  The meditation will require no less time than we last spent together._
 
 Marty stared.  His thoughts were travelling a million miles an hour, but also would not form.  The machine behind him made concerned beeps again.  He closed his eyes, and took a few deep breaths.  _There is no way this is real.  There is_ ***no way*** _this is real._  
 
@@ -149,16 +147,17 @@ Marty nodded.  "Yes please," he said, trying very hard not to sink all the way t
 
 Did Janie know?  Was she messing with him?  No, Janie was way too pure.  Besides, this was way more effort to fake than the potential payoff.  All he had to do was pick some place he had the keys to, and nobody would ever be able to see.  Picking a focus would take...what, thirty seconds in an alleyway?  _I could just ask,_ he realized.  _If Janie knew I saw something in this, she'd be ecstatic anyway._  He picked up his phone to tap out a message.
 
-**Hey Janie, that writing you did looks really neat.**
-**If I saw something in it, would that mean anything?**
+> **Hey Janie, that writing you did looks really neat.**  
+> **If I saw something in it, would that mean anything?**  
 
 He hit send, and waited for her to reply.  He didn't have to wait long.
 
-**Maybe!  It might mean whatever you saw, lol.**
-**I only got two other vibes**
-**that I should NOT ask, and that you definitely should do it**
-**whatever it is**
-**That's all I got.  I dunno, maybe you have an ancestor trying to throw you a surprise party?  lol**
+> **Maybe!  It might mean whatever you saw, lol.**  
+> **I only got two other vibes**  
+> **that I should NOT ask, which is REALLY hard but I'm trying**  
+> **and that you definitely should do it**  
+> **whatever it is**  
+> **That's all I got.  I dunno, maybe you have an ancestor trying to throw you a surprise party?  lol**  
 
 ------------------------------
 
