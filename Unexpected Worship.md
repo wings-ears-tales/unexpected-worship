@@ -38,4 +38,129 @@ The tiger's paw retreated out of view, and Marty felt his thighs gently parted. 
 
 ------------------------------
 
+Sound was a liquid, and it wanted to flow through his head.  It went back and forth.  _Whoosh!  Swish!_  It was so strange.  There was a funny smell...
+
+_Black again.  Heartbeats?_  
+
+No, sound again.  Swooshing faster, this time?  Maybe somebody was stirring it.  Marty was in a sound cup, and somebody was stirring him up in it.  He jiggled.  He could hear the sound-spoon, doing the stirring.  The sound-spoon seemed upset, and _whooshed_ at him some more.  It dipped down, pushed against his neck, and quit making noise for a second.  Let go of his neck.  Pushed against him, trying to stir him up, but he wasn't noise.  The spoon must recognize that a Marty is not a kind of sound, surely?  The sound cup was comfy, though.  
+
+Oh no, tongs!  The big sound tongs whooshed down and grabbed him.  _Tongs kind of hurt,_ he thought, but tongs knew he shouldn't be stirred, and lifted him out of the cup.  This upset the spoon, which ran screaming off into the kitchen.  Tongs grabbed him a different way that was less ouchy, and followed more slowly.  Something else approached, quieter.  Fork, maybe?  Haha, sound fork would make it a tuning fork.  It talked to tongs, raised a tine, shoved it into Marty's nose.  There was a funny smell.  There was a _really_ funny smell.  He couldn't get the smell to hold still; it kept running down into his nose.  Fork pulled away.  Marty took a deep breath, which met with approval from Tongs and Tuning Fork.
+
+Tongs kept walking.  Marty was glad the kitchen was dark.  Mostly dark.  Tongs called out to some other silverware and they made a countertop.  Tongs shifted their grip, and laid him down on the counter.  _Cold,_ he thought.  Marty took another deep breath, tried to shift himself.  "I'm wet," he tried to say, but nothing much made it out.  Tongs leaned down, making inquisitive sounds.  Marty tried to think of words to explain that he was wet, drenched with sound from the cup, and would leak noise on the counter.  Tongs made some more noises, but these were at fork, who called to spoon.  Spoon was getting better at sound!  Marty caught the word "upstairs," which was real progress for silverware, already talking so quickly.  Spoon ran outside, found stairs.  _Clomp, clomp, clomp, clomp,_ Marty heard.  _Kitchen must be really big,_ he thought.
+
+Tongs leaned down and put a hand on his chest.  "Doing alright?"  
+
+Marty blinked, and tried to nod, then remembered he was cold, and tried to shake his head.  
+
+Tongs patted his chest, and said something about "blanket."  Tongs must be a fast learner, too.  There was more clomping, and Tongs looked toward the door.  "Great!  Thanks.  Yeah, should be fine."
+
+Marty felt the warmth of the blanket, which was nice, but wasn't he still going to get it wet?  He tried to talk, again.  "'m...wet," he heard himself say.
+
+Tongs leaned down.  "You say you're wet?"  Marty nodded.  "Is it okay if I look at you?"  Marty nodded again.  Tongs pulled back the blanket, and laid a hand on him in a few places.  Tummy.  Chest.  Side.  Thigh.  Inner thigh.  "You seem okay so far," said Tongs.  They patted his inner thigh.  "Is it okay if I look at your groin?"  Marty nodded again, and felt Tongs part his thighs, and feel around a bit.  "Oh, you are a little wet, aren't you.  Damian!"  This last was at considerably higher volume.  Someone answered from out of sight.  "Get in the first aid supplies and grab me a rape kit, please?"  Tongs grabbed a chair, sat, and wiped her green hair back from her eyes.  A few seconds later, someone who seemed to be Damian appeared with the kit.  Fork approached Marty again, but Tongs waved him away.  "He's starting to come around, more Narcan isn't going to be a good idea.  This process doesn't feel nice, so let him enjoy the whatever brain fog is left while I get a sample."
+
+Marty winced as Tongs took a sample of the very real, non-noise-based fluid slowly leaking out of him.  It really _wasn't_ a comfortable process.  "I uh...not 'nuff braim fog.  Ow," he tried to say, and largely succeeded.  Then, after a second, "'m _real_ wet?  Not 'maginary?"
+
+Tongs wiped her hands and patted his chest.  "You sure were, baby.  Not a whole lot, but enough."
+
+"Was't _my_ wet?"
+
+Tongs saw the horrified look on his face and laughed.  "No, baby, not there.  But look, now that I got that sample, if you need to go to the bathroom, you let me know, okay?  I'm a little tipsy right now, but I've been a nurse for fifteen years, and between the two of us, we can make that happen.  I don't usually handle dicks on my off-hours, but for you, sweetie, I'll make an exception."
+
+Marty tried to clear his throat.  "Where am I?"
+
+"Babydoll, this is a _bar,"_ said Tongs.  "Don't you remember?  Finest artisinally-sourced queers and okay-est drinks in all the land," she said.  "You were sitting right over there, earlier tonight," she said, and pointed.  He could see, barely, and gradually things started to come back.
+
+"Hey, what's your name?  I know it's not Tongs," he said.
+
+"Why would you think it was Tongs?" asked another familiar voice.
+
+Marty turned to look, and grinned.  "Spoooon!"  He laughed.  They all laughed, it was too ridiculous.
+
+Tongs recovered first.  "Okay I'm...you're gonna need to explain that one," she said.
+
+Marty covered his face and groaned.  "So you know I'm high as balls, right," he asked.  There was a general murmur of agreement.  "When I was laying outside in the Cup, you," and he pointed at Spoon, "kept stirring me, and you," he pointed at Tongs, "picked me out of the Cup."  There was another round of giggling, which ended when Marty put his hands on his head and moaned.  "Oof, oh no, headache." 
+
+Tongs nodded.  "Oh yeah, and that's only gonna get worse, baby, I'm sorry.  Terry, no more Narcan, though.  Thank you for bringing that."
+
+__________________________________________________
+> Janie otter (spoon) volunteers to bring Marty fresh clothes
+> Whirlwind of paramedics
+> narrated chat with the cops
+> Admittance, sleep
+__________________________________________________
+
+"Good morning, sleepy-head!" came a sing-song voice.  "I'm sorry I'm running a little late, but I guess it turns out okay because the hospital doesn't allow guests at all until I'm supposed to be at work?"  Janie was a non-stop word fountain as she ottered her way into his hospital room and started digging through a reusable grocery bag she'd set down on the chair next to Marty's hospital bed.  "I hope I got everything - the hotel front desk lady looked at me weird last night, but it'll take more than her to scare me away!  Anyway the door key worked just fine, and I got..." she paused, pulling something up on her phone.  "...clean shirt, underwear, socks, I didn't see any shoes with you last night so I grabbed you some of those just in case.  You can keep the bag, I have others," she said.
+
+Marty yawned.  "Oh, it's..."  The yawn turned out to be incomplete, and he had to yawn again, jaws wide.  "...hey, you're not going to get in trouble at work, are you?"
+
+She laughed.  "At my bookshop?  No way.  The early crowd will just talk philosophy or something out front until I get there, and besides, it's not that far," she said.  "Half of what they do once they're inside is talk philosophy anyway.  I think I can recite you half of everything Socrates ever said by memory, at this point."
+
+"I've been trying to figure out if there's anything else I need, but I'm at a loss.  The stuff I remember having in my pockets all still seems to be in my stuff, so I guess that's cool?"
+
+Janie nodded.  "Hey, y'know, sometimes even when you get drugged and maybe raped and almost die, there's still a silver lining, y'know?"  She giggled.  
+
+Marty could not imagine any other person _in the world_ actually pulling off the delivery on a line like that.  
+
+"I did think of one thing you didn't ask for, though: a jacket!  We got a cold front overnight, I figured it couldn't hurt.  Y'know?"
+
+Marty kept grinning, and sincerely hoped he wasn't coming off as a weird little guy or anything.  Janie's enthusiasm for life was contagious.  Maybe her ability to fill a space with joyfull words was one of the things her extremely quiet girlfriend enjoyed about her.
+
+Janie paused, and shifted uncomfortably.  "Uh, there was one more thing," she said.  She took a deep breath, and seemed to center herself.  "I know everybody thinks this shit is woo-woo, but look, I was doing my kratom meditations early this morning, and I got a sense that I needed to do some automatic writing.  I don't usually do that kind of thing so soon after my first bowl of the morning - I mean, I was still pretty high - and whatever it was that came out, it didn't even look like words to me.  And not that I tried very hard to read it, I just...look, even if I wanted to, fucking with mail on the astral plane seems _way_ worse than messing with the feds' mail."  She paused, and signed.  "I'm sorry, I'm rambling.  My point is it was a really _strong_ sense, both that I needed to do it, and that it was meant for you, specifically.  And that I should put it in an envelope, which, sorry, reply mail is the best I had.  It's not actually my power bill, heh.  Maybe it makes sense to you.  Please just look at it when you get a chance."
+
+Marty nodded, and accepted the pre-paid envelope from Janie.  "I'll look," he said.  "Whether it makes any sense or not, it's so cool that you'd even pay attention to things like that.  Thanks, Janie."  He grinned at her, and the otter brightened considerably.
+
+"You're _so_ welcome!  Okay I need to run, Marty, call me if you need anything else, byeeeee!" she trailed off down the hall, still waving cutely back at Marty until she was out of view.
+
+Marty returned the wave for as long as he could see the otter.  Once she was gone, he took a deep breath, picked up the envelope, and looked curiously at it.  It definitely looked like a regular power bill.  He tore open the flap, and withdrew a half-sheet of standard printer paper, hastily torn from some printer's test page, by the look of it.  He unfolded it, and...well, this was indecipherable.  He turned it this way and that a few times, trying to sus it out.  The flip side of the same half-sheet had some hastily scribbled notes, mostly part of a grocery list, in what he guessed was probably Janie's hand; but that bore no resemblance to her "automatic writing" scribbles on the other side.  He sighed.  He didn't really want to believe in mysticism for his own ends, but Janie seemed to get a lot out of it for herself.  She seemed to use it as a new and different way to pay attention to the world around her.  If he was honest with himself, he kinda wanted it to be _a little_ true, just so Janie could be right about it.  Maybe that wasn't what mattered, though.
+
+He took a deep breath, let it out slowly, and took stock of his body.  The pounding headache had subsided to a light background tom-tom of pain.  The nausea was almost entirely gone, and he guessed what remained was just hunger.  The weight of his body still pulled at him, though.  The hospital bed gravity was surprisingly strong.  As if to challenge it, he picked up Janie's little slip of paper again and held it up above him, looking through it at the overhead light behind.
+
+He froze.  There was a word.  He could read it.  It was NOT in Janie's hand.  It said _"Pet."_
+
+He couldn't breathe for a solid three seconds.  His heart literally skipped a beat, at least according to the monitor behind him, which started beeping in worried tones until he started breathing again.  He stared slack-jawed at the page.  The word looked almost like caligraphy, if an eight year old could do caligraphy.  He yanked the sheet back down in front of him, and flipped the page over a couple of times.  No wonder he hadn't been able to see it before; the way he'd accidentally held the sheet up to the light, "pet" had been on the _back_ of the page.  When he flipped the sheet back to the "correct" side it became incomprehensible again, except that he could see the marks the word was made of.  
+
+Marty grabbed for his phone, got a handfull of wires and bedsheets, remembered it was on his other side, fumbled it, and finally opened the selfie camera.  He held the sheet up in front of him, and snapped a picture.  Setting down Janie's paper, he zoomed in on her automatic writing.  It was _very_ rough, but the marks did gradually start resolving into words:
+
+_________________________________________
+
+_Pet,_
+
+_I told you I'd return for you.  The place and time are yours to choose; the process is mine.  
+Return to the refuse behind the bar.  Choose one round, clear, unbroken glass item as a focus.
+Take it with you to a dark place where no one else can see or disturb you.  Wash your focus, and
+yourself, perfectly clean.  When you are prepared, disrobe, and extinguish or cover all lights.  
+Kneel before the focus.  Meditate on the events of last night.  When I can see you are calm, I 
+will come to you.  The meditation will require no less time than we last spent together._
+
+_________________________________________
+
+Marty stared.  His thoughts were travelling a million miles an hour, but also would not form.  The machine behind him made concerned beeps again.  He closed his eyes, and took a few deep breaths.  _There is no way this is real.  There is_ ***no way*** _this is real._  
+
+"Oh, hey, stranger!  You're up!"  Marty's reverie was broken by the cute border collie nurse, who'd just walked up and was still standing in the doorway.  
+
+He nearly jumped out of his skin.  He slammed the paper down on the bed and slapped the phone face-down on top of it.  "Oh my god, haha, you gotta warn me before you do that!" he said, laughing with sudden relief.  "Yeah, sorry - little fatigued, but definitely feeling better," he said.
+
+She smirked.  "That's good news," she said.  "I was worried when your monitors started going a little nuts at the nurse's station.  But no, what I meant was, uh..." she pointed cutely with one claw, still grinning ear to ear, "...you're _up."_
+
+Marty looked down.  He was under the hospital blanket, but there was nothing that could possibly hide the hard-on he was sporting.  _"OhmygodIamsosorry,"_ he blurted, trying desperately to cover himself with his hands.  His cheeks flushed so hard he was sure she could see his nose turn colors.
+
+The nurse laughed.  "Don't worry, big guy, you're not the first person to get a love note in the hospital," she said.  "And with any luck, you won't be the last.  You set my station monitors off with _that_ as many times as you want.  But hey, while I'm here, you ready for lunch?"
+
+Marty nodded.  "Yes please," he said, trying very hard not to sink all the way through the bed and into the floor in shame.
+
+Did Janie know?  Was she messing with him?  No, Janie was way too pure.  Besides, this was way more effort to fake than the potential payoff.  All he had to do was pick some place he had the keys to, and nobody would ever be able to see.  Picking a focus would take...what, thirty seconds in an alleyway?  _I could just ask,_ he realized.  _If Janie knew I saw something in this, she'd be ecstatic anyway._  He picked up his phone to tap out a message.
+
+**Hey Janie, that writing you did looks really neat.**
+**If I saw something in it, would that mean anything?**
+
+He hit send, and waited for her to reply.  He didn't have to wait long.
+
+**Maybe!  It might mean whatever you saw, lol.**
+**I only got two other vibes**
+**that I should NOT ask, and that you definitely should do it**
+**whatever it is**
+**That's all I got.  I dunno, maybe you have an ancestor trying to throw you a surprise party?  lol**
+
+__________________________________________________
+
 
