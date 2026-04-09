@@ -125,13 +125,14 @@ Marty grabbed for his phone, got a handfull of wires and bedsheets, remembered i
 > _Pet,_
 >
 > _I told you I'd return for you.  The place and time are yours to choose; the process is mine._
-> _Return to the refuse behind the bar.  Choose one round, clear, unbroken glass item as a focus._
-> _Take it with you to a dark place where no one else can see or disturb you.  Wash your focus, and_
-> _yourself, perfectly clean.  When you are prepared, disrobe, and extinguish or cover all lights._
-> _Kneel before the focus.  Meditate on the events of last night.  When I can see you are calm, I_
-> _will come to you.  The meditation will require no less time than we last spent together._
+> _From the refuse behind the bar, retrieve one round, clear, unbroken glass item as a focus._
+> _Take it with you to a dark place where no one else can see or disturb you.  You must be fully_
+> _sober.  Wash your focus, and yourself, perfectly clean.  When you are prepared, disrobe, and_
+> _extinguish or cover all lights.  Kneel before the focus.  Meditate on the events of last_
+> _night.  When I can see you are calm, I will come to you.  Be patient - the meditation will_
+> _require no less than the amount of time we spent together last night._
 
-Marty stared.  His thoughts were travelling a million miles an hour, but also would not form.  The machine behind him made concerned beeps again.  He closed his eyes, and took a few deep breaths.  _There is no way this is real.  There is_ ***no way*** _this is real._  
+Marty stared.  His thoughts were travelling a million miles an hour, but also would not form.  The machine behind him made concerned beeps again.  He closed his eyes, and took a few deep breaths.  _There is no way this is real.  There is_ ***no way*** _this is real._  Memories started to swim back into his mind.  The sound of purring in his ears as he struggled for breath.  The rippling, velvety sound of the words "good boy!" as his master's pride lit up something inside him, like warm sunlight finally reaching some dark recess inside him that'd never seen daylight before.  The alien sensation of something stretching...
 
 "Oh, hey, stranger!  You're up!"  Marty's reverie was broken by the cute border collie nurse, who'd just walked up and was still standing in the doorway.  
 
