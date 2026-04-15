@@ -231,3 +231,5 @@ The tiger smiled.  "Of course, pet."
 "I should probably remember to watch my drink better."
 
 ------------------------------
+
+## _Continued in Part 2_
