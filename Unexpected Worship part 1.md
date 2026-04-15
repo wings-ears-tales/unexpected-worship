@@ -232,4 +232,4 @@ The tiger smiled.  "Of course, pet."
 
 ------------------------------
 
-## _Continued in Part 2_
+## _Continued in [Part 2](Unexpected%20Worship%20part%202.md)_
