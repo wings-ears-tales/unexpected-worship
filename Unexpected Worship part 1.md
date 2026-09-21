@@ -334,9 +334,29 @@ The tiger smiled.  "Of course, pet."
 
 "I should probably remember to watch my drink better."
 
-On hearing from Marty that the hotel room's bathing facilities included only _a mere shower,_ the tiger declared that they were not up to the requirements of a deity performing a holistic cleansing ritual, and offered to take Marty to his own baths.  The sable was initially hesitant - they were comfy, unclothed, and in private - but gave in to his striped benefactor's amused reassurances that clothing would not be necessary for the trip.  "Nobody will even know we've left your room," he reassured.  "Close your eyes and hold on to me, though - this _is_ going to feel a bit strange, and you may not want to see it."
+The tiger chuckled.  "I can think of gentler ways to remember, but probably none as effective."  He kissed the top of Marty's head.  "Now, tell me, little one, have you a proper bath in your quarters?"
 
-Marty closed his eyes, and felt the tiger shield his face with one paw, as well.  Then, suddenly, gravity went haywire.  Marty felt himself go into free-fall, held in place only by the tiger's arms, and stifled a yelp.  It was brief; as his sense of "down" returned, he felt it swing wildly.  As things stabilized, it seemed that down had changed from _against_ the tiger's chest to _along_ the tiger's chest, as though the big cat were suddenly standing.  As he tried to slow his heart back down, in the background, he could hear that the low hum and gentle whoosh of his hotel room's ventilation had been replaced by the gentle chirping of what sounded like crickets.  The air was warmer, and more humid.  "Wh...whoa.  Is...is it safe to open my eyes, yet?"
+"I'm...not sure about _proper,_ but the shower is _functional?"_
+
+"For both of us at once?"
+
+"Oh, um...it's fine for me, but I'm not sure you'd fit at all, nevermind both of us at once."
+
+The tiger _tsk'd_ and sighed.  "Such is the modern way.  Nothing spare, nothing shared.  Would you trust me to take you to my favorite place to bathe?  A ritual like this calls for more serenity than a mere _shower,"_ he said, lips twisting around the last word as though spitting out something distasteful.
+
+Marty thought about this.  "I'm...I really like being with you like this.  If only there were a way to leave that didn't require clothing!"
+
+"I would not offer if there were not," the tiger replied.  "You must still remain naked before me - but I would not both forbid you clothing _and_ suggest travel which required it."
+
+Marty's eyes grew wide.  "Oh, I'm so sorry, I didn't mean to...I wouldn't have suggested that..."
+
+The big cat smiled and silenced Marty's stammering with one large digit placed against the sable's lips.  "Shh, little one, you have done nothing wrong and need not apologize.  You could not know that from here, I can simply pluck you from the fabric of this world and take you with me," he continued.  "Nobody will even know we've left your room; I only ask whether you trust me to do so."  
+
+"W...will you bring me back?"
+
+"Of course, little one.  Close your eyes and hold on to me, though - this _is_ going to feel a bit strange, and you may not want to see it."
+
+Marty nodded, and held tightly to the tiger once more.  He closed his eyes, and felt the tiger shield his face with a paw, as well.  Then, suddenly, gravity went haywire.  Marty felt himself go into free-fall, held in place only by the tiger's arms, and stifled a yelp.  It was brief; as his sense of "down" returned, he felt it swing wildly.  As things stabilized, it seemed that down had changed from _against_ the tiger's chest to _along_ the tiger's chest, as though the big cat were suddenly standing.  As Marty tried to slow his heart back down, in the background, he could hear that the low hum and gentle whoosh of his hotel room's ventilation had been replaced by the gentle chirping of what sounded like crickets.  The air was warmer, and more humid.  "Wh...whoa.  Is...is it safe to open my eyes, yet?"
 
 The tiger's voice was ripe with amusement.  "Slowly, but yes, you can open your eyes, pet."
 
