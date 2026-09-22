@@ -468,11 +468,15 @@ After a moment, the big cat asked, "would you perhaps like some assistance?"
 
 "...maybe?"
 
-"Hold still."  The tiger lifted his paws from Marty's chest, and instead engulfed the sable's entire head in his paws.
+"Take a deep breath, hold still, and trust me."  The tiger lifted his paws from Marty's chest, and instead engulfed the sable's entire head in his paws.
 
-There was a wave of mild euphoria, and Marty's inner monologue stopped in its tracks.  Speech left him.  Another wave washed over him, this one of placid, tranquil calm.  His mind was held in delicious, benevolent suspense, like being tied up and forced to watch a beautiful sunset.  His breathing slowed, and again fell into complementary cadence with the tiger's.  
+Marty took a deep breath and closed his eyes.  He rested his palms on the tiger's forearms, and felt those big fingertips starting to massage his temples.
 
-"I'm sorry, little one," the tiger said to nobody in particular, since he knew there was no way Marty could hear him.  "With you, I do not like to be so heavy-handed, but you won't remember this, and we are _both_ going to love what's coming."  Gently, he lowered the sable's mind to float lightly on the sea of sleep, then re-laced his fingers over Marty's chest, and waited for him to come back around.
+"One more deep breath, as deep as you can."
+
+Marty breathed deep, and just as his lungs filled, his entire psyche was suddenly overtaken by a thundering wave of euphoria.  His eyes sprang wide open, and colors swam in his vision; his breath and inner monologue suddenly stopped in their tracks.  From deep within his being, his entire self resonated with the words of a deep and powerful voice that spoke both to and from his very core: "I want to be gentle with you, that you might know me first on your own terms; but while you will not remember and can only enjoy, I will reveal the tiniest part of what I can do.  My child, come: let me kiss your soul, and speed you into slumber."  He felt his benefactor's caress through his entire being; there was no part of him that was merely himself.  The sensation was deep, intense, and intimate, but he could not say where it touched him.  He gasped, or thought he gasped; he was no longer sure he knew what his body was doing.  The voice came again.  "One day, when you'll remember it, we may do this again.  For now, little one, take, enjoy, and _rest."_  Another caress washed over him, and behind it, another thundering wave of euphoria, this one like a tsunami driving him up a mountainside.  He would have been terrified except for the potent, tranquil calm that pinned him in place.  His mind was held in delicious, benevolent suspense, like being tied up and forced to watch a beautiful sunset.  When he could bear no more, he fell from consciousness; eventually, his breathing returned to its relaxed, complementary cadence with the tiger's.  
+
+A broadly smiling tiger re-laced his fingers gently over Marty's chest, and waited for the sable to re-awaken.
 
 ------------------------------
 
